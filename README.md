@@ -1,6 +1,6 @@
 
- 𓏵 ⠀⠀﹒ ⠀⠀Lucien⠀⠀⠀ノ⠀⠀⠀Luci⠀⠀⠀  𓂂  
-⠀He  | Him⠀⠀⠀⸺⠀⠀⠀⠀Trans male woahh⠀ 
+ 𓏵 ⠀⠀﹒ ⠀⠀Lucien⠀⠀⠀ノ⠀⠀⠀Strade⠀⠀⠀  𓂂  
+⠀He  | Him⠀⠀⠀⸺⠀⠀⠀⠀Trans male woahh⠀ -- non-sharing Strade yume
 ⠀⠀𓎠   
   --- || YKMET/BTD || purple dc frostbite house md⠀postal mtl rdr ⠀𐂯⠀⠀⠀intwc⠀⠀taken !!                                  
    
@@ -9,5 +9,5 @@
 
 
 
-𓏵 . C+H freely just don't cover me  ,, audhd + sys . .//  tatefrostbite on discord !! Feel free to add
+𓏵 . C+H freely just don't cover me  ,, audhd + sys . .//  tatefrostbite on discord !! Feel free to add == Send me strade gimmicks on my strawpage!!
 
