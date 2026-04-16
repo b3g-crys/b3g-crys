@@ -11,5 +11,5 @@
 
 
 
-𓏵 . C+H freely just don't cover me  ,, audhd + sys . .//  strade_cry on discord !! Feel free to add == ||  Send me Law or Strade gimmicks on my strawpage plspls!!
+𓏵 . || Ponytown : C+H freely just don't cover me ||  ,, audhd + sys . .//  strade_cry on discord !! Feel free to add == ||  Send me Law or Strade gimmicks on my strawpage plspls!!
 
